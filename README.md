@@ -1,2 +1,1 @@
-# mni-linh.github.io 
- CV
+# CV newbie 🐓
